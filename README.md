@@ -16,7 +16,6 @@ Algunas de las tecnologías que uso son:
 ### No dudes en contactarme! 
 Juntxs podemos realizar un gran proyecto que cambie miles de vidas
 
-[Linkedin]([https://www.linkedin.com/in/melina-sosa-fuch-1a7376207/])
-📫
+[Linkedin] 📫 https://www.linkedin.com/in/melina-sosa-fuch-1a7376207/
 
 sosafuchmelina@gmail.com
